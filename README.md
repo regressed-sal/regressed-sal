@@ -7,7 +7,7 @@
 ❯❯ ~ `7-10 age ; apagender` ~ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/97e90743-5641-463c-86eb-c9204d6382db" />
 
  
-——➤ˎˊ˗ :mushroom:[Main account](https://github.com/Cannibalistic-Ways-Of-Life)
+——➤ˎˊ˗ :mushroom:[*Main* **acc**~~o*u*nt~~](https://github.com/Cannibalistic-Ways-Of-Life)  <ins>**~~///~~**</ins>  [*R*~~ent~~**ry**](https://rentry.co/sally_face10)
 
 ❯❯ *please be kind :3..* ╮  
 
